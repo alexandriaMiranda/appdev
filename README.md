@@ -12,5 +12,6 @@ aaa
 anonaa lesterrrr. 
 ang ganda ko beh
 
-BSIT 3F-1
+Lester: Miranda!
+Alex: Ano? Maganda?
 
